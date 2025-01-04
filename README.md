@@ -1,1 +1,1 @@
-Always doubt others' intentions."
+Always doubt others' intentions.
